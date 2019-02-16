@@ -5,4 +5,5 @@ Thank you very much in the list of friends, your affirmation and support is my b
 
 |昵称(nickname)|日期(date)|方式(donation way)|留言(message)|友情连接(links)|
 |:---:|:---:|:---:|:---:|:---:|
+|Z*g|2019-02-16|微信|请你喝杯咖啡easy re||
 |faith|2018-12-26|阿里|请你喝杯咖啡||
