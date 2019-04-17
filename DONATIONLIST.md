@@ -5,6 +5,8 @@ Thank you very much in the list of friends, your affirmation and support is my b
 
 |昵称(nickname)|日期(date)|方式(donation way)|留言(message)|友情连接(links)|
 |:---:|:---:|:---:|:---:|:---:|
+|*林|2019-04-16|阿里|感谢你的项目，请你喝星巴克？||
+|*志儒|2019-04-03|阿里|||
 |*俊|2019-03-24|阿里|||
 |*晓斌|2019-03-23|阿里|||
 |*少停|2019-03-09|阿里|||
