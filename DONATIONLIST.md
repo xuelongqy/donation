@@ -5,6 +5,8 @@ Thank you very much in the list of friends, your affirmation and support is my b
 
 |昵称(nickname)|日期(date)|方式(donation way)|留言(message)|友情连接(links)|
 |:---:|:---:|:---:|:---:|:---:|
+|*开子|2019-08-05|阿里|||
+|*广成|2019-07-08|阿里|||
 |*森林|2019-06-28|阿里|6666||
 |*凯|2019-06-26|阿里|||
 |*勇|2019-06-18|阿里|wifi模拟器好软件，请顿早餐聊表谢意||
