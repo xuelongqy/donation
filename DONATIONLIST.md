@@ -5,6 +5,7 @@ Thank you very much in the list of friends, your affirmation and support is my b
 
 |昵称(nickname)|日期(date)|方式(donation way)|留言(message)|友情连接(links)|
 |:---:|:---:|:---:|:---:|:---:|
+|*江江|2019-12-17|阿里|||
 |*禹立|2019-12-12|阿里|wifi模拟器！加油！||
 |*热萨|2019-11-24|阿里|||
 |*垚|2019-11-20|阿里|||
